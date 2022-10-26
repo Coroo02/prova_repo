@@ -7,4 +7,4 @@ modifica da mio repo
 modifico da github
 modifica ulteriore nel main
 
-coronello prende la pentola
+coronello prende la pentola grande
